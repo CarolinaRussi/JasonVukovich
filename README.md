@@ -15,4 +15,5 @@ https://www.adn.com/alaska-news/crime-courts/2018/01/01/anchorage-man-who-attack
 https://www.adn.com/alaska-news/crime-courts/2018/02/26/anchorage-man-who-attacked-sex-offenders-sentenced-to-23-years-in-prison/
 
 Carta escrita por Jason:
+
 https://s3.amazonaws.com/arc-wordpress-client-uploads/adn/wp-content/uploads/2017/12/29083513/Vukovich-letter.pdf
